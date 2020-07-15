@@ -1,1 +1,1 @@
-# 1.000-SUBS
+# spesial 700 subscriber
